@@ -1,0 +1,1 @@
+Ici parlerons de la veille technologique.
